@@ -7,6 +7,7 @@
 - **Usually reading books**
 
 ***STRENGTH AND WEAKNESSES***
+
 ***STRENGTH***
 - **Cooperation** 
 - **Flexibility**
