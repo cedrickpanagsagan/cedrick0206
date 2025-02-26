@@ -1,1 +1,13 @@
-# cedrick0206
+# Cedrick0206
+## Hi, Im *Cedrick B. Panagsagan*, currently im *20 years old*. and living at *Binondominium 1 Delpan St. San Nicolas Manila*.
+
+***CHARACTER PROFILE***
+- **12 STEM - (Knowledge)**
+- **Love playing video games**
+- **Usually reading books**
+
+***STRENGTH AND WEAKNESSES***
+- **Cooperation 
+- Flexibility
+
+- 
