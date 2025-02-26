@@ -7,7 +7,19 @@
 - **Usually reading books**
 
 ***STRENGTH AND WEAKNESSES***
-- **Cooperation 
-- Flexibility
+***STRENGTH***
+- **Cooperation** 
+- **Flexibility**
+- **Cooperation**
 
-- 
+***WEAKNESS***
+- **Lack of Confidence**
+- **Have a difficulty on mathematics**
+- **Nervousness**
+
+***Program that i also want to learn***
+- **HTML**
+- **CSS**
+- **Java**
+- **Python**
+- **C++**
