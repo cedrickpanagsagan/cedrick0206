@@ -27,4 +27,4 @@
 
 ***SOCIAL MEDIA ACCOUNT***
 - [FACEBOOK](https://www.facebook.com/cedrick.panagsagan.9)
-- [INSTAGRAM](https://www.facebook.com/cedrick.panagsagan.9)
+- [INSTAGRAM](https://www.instagram.com/tellthe)
